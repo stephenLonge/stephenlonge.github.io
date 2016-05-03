@@ -66,6 +66,7 @@ link:
 
 # prose
 prose:
+  rooturl: _posts
   siteurl:           'https://stephenlonge.github.io'
   ignore:
     - .editorconfig
