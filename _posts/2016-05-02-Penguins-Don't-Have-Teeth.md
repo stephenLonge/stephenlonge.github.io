@@ -28,40 +28,77 @@ Despite my flight instinct, seeing as today I am a fighter, I push on and part t
 An army of these strange creatures starts to emerge and slowly saunter their way over to us. They close in on us like a pack of hunting coyotes does- a wide, spacious circle that gets tighter and tighter the closer they get and all of their teeth gleam brightly under the lunar spotlight. 
 
 “They call me [indescribable penguin noises], but to you I am Captain. We are legion and We are yours. What is your command?” His words are riddled with inconsistencies due to his nature as a penguin, but their meaning is clear. I have an army? I have an army. I have an army of terrifying penguins and I have no clue what these fuckers can do. 
-	“What happened to him?” I pointed to the deflated penguin. 
-	“Why do you eat food, human? The cycle of life and death is just as prevalent here as it is in your world. Only, We survive on the blood of our kin. The food of this place is unfit and impure. Would you like to try some?” 
-	I stand on a snowy landscape in a large yard next to an average home, the children are asleep and the parents are fulfilling their drone-like realities on the couch while watching the latest murder porn show, and I am just yards away with an army of vampiric penguins. It is amazing to me that their boisterousness has not drawn any attention from the neighborhood.  
-	“Uhh… I mean, I’m okay right now. So, like… what do you guys do? What do you mean you’ve been waiting for me?”
-	The creatures all cry out in unison. I feel almost deafened by their exclamations. I look around me to see if anyone has come rushing out of their homes, to see if we have drawn any attention to ourselves, but everything is as undisturbed as it had been before I walked over here. 
-	Captain addresses his comrades in pure penguin and then turns back to me. 
-	“We are here to serve you.”
-	“Yeah?.”
-	I can suddenly feel the cold- the sweat from running has been pouring from my pores and since I stopped, I am no longer generating heat. I am cold. I am the cold. 
-	“You are the One. You made us. You are the first of our kind. SQUAAAAAAWK. Give our call a shot. You will see.”
-	Despite feeling silly, I prepare myself to make a penguin call. I close my eyes and search inside for it. Finding what I think is it, I open my mouth and I flex my stomach and I scream. 
-	The most foreign noise I could imagine is nothing compared to what comes out. A mix between the bray of a donkey and the scream of a goat and the screeaw of a flightless bird ejects itself from my throat and my entire body constricts with it. I feel the sensation of having to shit, vomit, piss, and cry all at once. 
-	“You see? You have seen. Tell us, Jeremy. Tell us what we must do.” 
-	“…Okay… I want you to make a pyramid with your bodies.”
-	The penguins waddle to the space right in front of me and begin hoisting one another up, one by one, until a penguin pyramid rests there. 
-	“What now, great One?”
-	“So do you mean to tell me that you will do anything I ask?”
-	“Anything.”
-	“I want you to go into this home and round up all of the humans into one room and I will instruct you further then.”
-	“And so it shall be”
-	One by one, they hop off of the pyramid formation and they waddle systematically to the house. Captain opens the door with an acrobatic jump and flick of his flipper and takes the lead for the invasion. 
-	Within a few seconds, screams and shouts emanate from the picture-perfect house and just as suddenly, an eerie silence takes a hold of my surroundings. I see the front door open and Captain lets out a caw. Presumably the job is done. 
-	 My heavy boots crunch through the snow up to the front door and it opens as I arrive to the top of the steps. 
-	“It is done, Jeremy. They were making too much noise so we had to silence them.”
-	“What do you mean by silence?”
-	“You shall see. Follow me.”
-	Captain takes the lead, again, as it would seem is his role, and brings me into the family room that I had just minutes before been looking into from outside. There are two adults and three children, but all have been exterminated. There are teeth marks on their necks and they’ve been contorted into sickeningly impossible positions. 
-	“I never told you to kill them! Bad penguins! BAD PENGUINS!”
-	“We are sorry, master. What would you have us do?”
-	“It’s too late to do anything about this. Who gave the order to kill them?”
-	“Nobody did, it is just what we do. We silence those that squawk too loudly. And they were squawking much too loudly.” 
-	Surrounding me must be thirty or forty toothy penguins, vibrating happily and proudly, and shoving each other about with celebratory fervor. 
-	“And so it is. Can you get rid of these bodies and clean up the mess?”
-	“Yes, master.”
-	“Actually, you say that you like to eat your own kind, that it is more pure, right?”
-	“Yes, master.”
-	“Fire up the grill.”
+
+“What happened to him?” I pointed to the deflated penguin. 
+
+“Why do you eat food, human? The cycle of life and death is just as prevalent here as it is in your world. Only, We survive on the blood of our kin. The food of this place is unfit and impure. Would you like to try some?” 
+
+I stand on a snowy landscape in a large yard next to an average home, the children are asleep and the parents are fulfilling their drone-like realities on the couch while watching the latest murder porn show, and I am just yards away with an army of vampiric penguins. It is amazing to me that their boisterousness has not drawn any attention from the neighborhood.  
+
+“Uhh… I mean, I’m okay right now. So, like… what do you guys do? What do you mean you’ve been waiting for me?”
+
+The creatures all cry out in unison. I feel almost deafened by their exclamations. I look around me to see if anyone has come rushing out of their homes, to see if we have drawn any attention to ourselves, but everything is as undisturbed as it had been before I walked over here. 
+
+Captain addresses his comrades in pure penguin and then turns back to me. 
+
+“We are here to serve you.”
+
+“Yeah?.”
+
+I can suddenly feel the cold- the sweat from running has been pouring from my pores and since I stopped, I am no longer generating heat. I am cold. I am the cold. 
+
+“You are the One. You made us. You are the first of our kind. SQUAAAAAAWK. Give our call a shot. You will see.”
+
+Despite feeling silly, I prepare myself to make a penguin call. I close my eyes and search inside for it. Finding what I think is it, I open my mouth and I flex my stomach and I scream. 
+
+The most foreign noise I could imagine is nothing compared to what comes out. A mix between the bray of a donkey and the scream of a goat and the screeaw of a flightless bird ejects itself from my throat and my entire body constricts with it. I feel the sensation of having to shit, vomit, piss, and cry all at once. 
+
+“You see? You have seen. Tell us, Jeremy. Tell us what we must do.” 
+
+“…Okay… I want you to make a pyramid with your bodies.”
+
+The penguins waddle to the space right in front of me and begin hoisting one another up, one by one, until a penguin pyramid rests there. 
+
+“What now, great One?”
+
+“So do you mean to tell me that you will do anything I ask?”
+
+“Anything.”
+
+“I want you to go into this home and round up all of the humans into one room and I will instruct you further then.”
+
+“And so it shall be”
+
+One by one, they hop off of the pyramid formation and they waddle systematically to the house. Captain opens the door with an acrobatic jump and flick of his flipper and takes the lead for the invasion. 
+
+Within a few seconds, screams and shouts emanate from the picture-perfect house and just as suddenly, an eerie silence takes a hold of my surroundings. I see the front door open and Captain lets out a caw. Presumably the job is done. 
+
+My heavy boots crunch through the snow up to the front door and it opens as I arrive to the top of the steps. 
+
+“It is done, Jeremy. They were making too much noise so we had to silence them.”
+
+“What do you mean by silence?”
+
+“You shall see. Follow me.”
+
+Captain takes the lead, again, as it would seem is his role, and brings me into the family room that I had just minutes before been looking into from outside. There are two adults and three children, but all have been exterminated. There are teeth marks on their necks and they’ve been contorted into sickeningly impossible positions. 
+
+“I never told you to kill them! Bad penguins! BAD PENGUINS!”
+
+“We are sorry, master. What would you have us do?”
+
+“It’s too late to do anything about this. Who gave the order to kill them?”
+
+“Nobody did, it is just what we do. We silence those that squawk too loudly. And they were squawking much too loudly.” 
+
+Surrounding me must be thirty or forty toothy penguins, vibrating happily and proudly, and shoving each other about with celebratory fervor. 
+
+“And so it is. Can you get rid of these bodies and clean up the mess?”
+
+“Yes, master.”
+
+“Actually, you say that you like to eat your own kind, that it is more pure, right?”
+
+“Yes, master.”
+
+“Fire up the grill.”
