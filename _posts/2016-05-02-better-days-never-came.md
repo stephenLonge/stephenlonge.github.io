@@ -2,8 +2,6 @@
 layout: post
 published: true
 ---
-Better Days Never Came
-
 “Instinctual rebellion against institutions,” the haggard-looking man projected from upon a make-shift soap box that objectively looked as tattered and hastily assembled as he. “It’s a force in all of us and you can trust that, once you’ve been scorned by the powers that be, you will resent the present and everything that led to it. Let it be said that the machine cannot run without working cogs and regrettably we live on a planet with nearly infinite spare, replacement parts,” thick spit trailed his words and dribbled down his chin, adorning the unkempt beard, much like spring dew on a spiderweb, though the beauty of the latter is absent in the grime of the former. 
 
 Worn galoshes were speckled with holes and through those holes, one could see the man’s toes curl with each emotionally charged exclamation while his nicotine-stained eyebrows fell back down to rest. These public proclamations really took their toll on the soiled preacher but they were an integral part of his creature. 
@@ -87,4 +85,4 @@ The haggard head honcho’s jaw dropped down hinges of rot, his expression akin 
 
 “Baby, I’m sorry. I didn’t think before I picked you up. I thought you were dead, informed by your mom. How are you here, from where do you come?” the man, her dad, sputtered through tears, sobs unstoppably shaking his body while his daughter stood still, so still, it was haunting. Despite his pleading, she wouldn’t start talking. So he did. 
 
-“Brothers, sisters, we must find who did this. Her power of speech was beaten from her body. Someone took it upon themselves to desecrate my baby girl, my world. Though I thought she were lost, I will exact revenge at any cost. Plans have changed; a price of pain must be paid. Will you come with me or will here you stay? I will discover whom we must blame,” the end of the sentence struck ears as his fists beat his weak knees beneath the street lamp’s green gleam, his usually soft gaze became menacingly mean and from his silent crowd erupted a collective scream. Geared for battle, they took to the streets. 
+“Brothers, sisters, we must find who did this. Her power of speech was beaten from her body. Someone took it upon themselves to desecrate my baby girl, my world. Though I thought she were lost, I will exact revenge at any cost. Plans have changed; a price of pain must be paid. Will you come with me or will here you stay? I will discover whom we must blame,” the end of the sentence struck ears as his fists beat his weak knees beneath the street lamp’s green gleam, his usually soft gaze became menacingly mean and from his silent crowd erupted a collective scream. Geared for battle, they took to the streets.
