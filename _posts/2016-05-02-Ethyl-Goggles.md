@@ -1,6 +1,6 @@
 ---
 layout: post
-published: false
+published: true
 ---
 Whiskey blindness, can’t you see? You can’t see. With your eyes or anything else. But your body seems to have a plan of action. You crawl through the ethyl fog. It all reduces down to ethyl in the end. That’s why, despite the seemingly repulsive nature of a Listerine chug, people continue to do it, because of the ethyl, the alcohol.  Your clothes are soaked and heavy from the forceful evacuations you didn’t care to run to the bathroom to deposit, though do you really care? You are on a mission, though what for is just out of grasp, but you’ll know it when you see it. The wooden floors squeak as your skin skids across them. You feel a splinter sneak its way in, so what. It’s a scratch. 
 
