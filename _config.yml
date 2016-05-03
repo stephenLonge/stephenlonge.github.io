@@ -10,7 +10,7 @@ url:  'https://stephenlonge.github.io'
 baseurl: "" # the subpath of your site, e.g. /blog
 permalink:  /media/:year-:month-:day-:title/
 
-title:  'stephen longe '
+title:  'stephen longe'
 tagline:  'powered by technomad'
 description: > #
   github hosted, technomad powered, stephen
