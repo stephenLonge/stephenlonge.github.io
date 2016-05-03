@@ -7,4 +7,4 @@ published: true
 
 ## me
 
-Hi, I'm Stephen Longe
+Hi, I'm Stephen Longe. Welcome to my Portfolio.
