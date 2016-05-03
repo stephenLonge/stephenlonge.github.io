@@ -1,6 +1,6 @@
 ---
 layout: post
-published: false
+published: true
 ---
 You never really liked the bite of liquor nor the piss-like quality of beer, but in the name of a good time, sacrifices must be made. Turn 21. Start going to the bar with your friends. 
 
