@@ -13,7 +13,7 @@ permalink:  /media/:year-:month-:day-:title/
 title:  'stephenlonge'
 tagline:  'powered by technomad'
 description: > #
-  github hosted, technomad powered, stephen longe
+  github hosted, technomad powered, stephen
 github:
   repo:  'https://github.com/wommy/wommy.github.io'
   version:  1.0.0
