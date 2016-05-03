@@ -1,6 +1,6 @@
 ---
 layout: post
-published: false
+published: true
 ---
 I’m running down the street. My boots are untied, floppy, and heavy, and they keep clomp-clomping as I mash them down on the snow-slicked pavement. Behind me is everything I can’t deal with. Ahead of me is everything I’ve never had the gumption to pursue. My breath is heavy and hard- not so much because of the running but mostly because of the hot saline drips falling from my eyes.  
 
